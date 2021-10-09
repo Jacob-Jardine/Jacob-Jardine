@@ -1,4 +1,4 @@
-### Hi there I'm Jacob Jardine
+### Hi there I'm Jacob Jardine 👋
 
 
 ### Connect with me:
